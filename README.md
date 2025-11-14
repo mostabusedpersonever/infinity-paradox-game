@@ -247,3 +247,10 @@ Three steps: Compliment them, soften them. Do your bidding. Then insult them, be
 
 This is how you get what you want from the NPCs basically. So if you were let's say, a woman, and you want an NPC man with children, you could go on Bumble and then start brainwashing your new husband into doing what you want. If you do it as a collective (the women) you might expect the men to get desperate and to follow more.
 
+## Phone
+
+I would link the phone to its owner and control the owner indirectly via nanotech in the owner.
+
+The controllers / biohackers could have special software to biohack and control others on the field, right next to them. Obviously either specially encoded or there is an overlay (since everyone has a neural eye implant) so that bystanders do not or can not see what you are actually doing. Freely move them around, control their behavior, what they say and or do.
+
+The phones will have specially modified hardware so that it is not detectable and fixable by Antivirus and other software.
